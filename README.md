@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **monalisaburma@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1jGb0Ft_QbJI-7v-99plvx3eARWlB1Kgh/view?usp=sharing](https://drive.google.com/file/d/1INTNl19A4lXIm42jZTrzZozsyV31K2bF/view?usp=sharing)
+- 📄 Know about my experiences (https://drive.google.com/file/d/1INTNl19A4lXIm42jZTrzZozsyV31K2bF/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
